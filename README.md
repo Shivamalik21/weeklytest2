@@ -10,6 +10,6 @@ https://shivamalik21.github.io/weeklytest2/
 ![new11](https://github.com/Shivamalik21/weeklytest2/assets/129033663/d719aec0-5d04-4419-93be-3a5f41e94fcd)
 
 #
-![44](https://github.com/Shivamalik21/weeklytest2/assets/129033663/a5010daa-9af4-4419-b3a0-e6b49dbc982d)
+![28](https://github.com/Shivamalik21/weeklytest2/assets/129033663/e4a7e70c-942c-4917-8ccb-2699af5cba3d)
 ![new22](https://github.com/Shivamalik21/weeklytest2/assets/129033663/1bdb5921-e4ea-43ac-a5f4-331cb723a955)
 
